@@ -1,6 +1,5 @@
 # Table
 
-[screencapture-file-C-Users-Dell-Desktop-Task-2-Table-index-html-2023-03-04-10_04_28.pdf](https://github.com/YashMParmar/Table/files/10890792/screencapture-file-C-Users-Dell-Desktop-Task-2-Table-index-html-2023-03-04-10_04_28.pdf)
-
+3/4/23, 10:08 AM37.42 KBfile:///C:/Users/Dell/Desktop/Task/2.%20Table/index.html
 
 
